@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LittleCoder7x
+- 😩 I have a fierce cat.
+- 🌱 Make small but daily progress.
+- 💪🏻 Make an all-out effort.
